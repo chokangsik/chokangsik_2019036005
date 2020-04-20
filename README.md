@@ -14,4 +14,4 @@ my major is Information and Communication  Engineering
 
 finally i'm living in sejong sity 
 
-Thank you
+Thank you /
